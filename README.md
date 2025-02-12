@@ -7,7 +7,7 @@
 
 - 📫 How to reach me *dtyo112@gmail.com*
 
-- ⚡ Fun fact *Only Investmen Cryptocurency*
+- ⚡ Fun fact *Only Investment Cryptocurency*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
